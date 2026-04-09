@@ -18,7 +18,10 @@
 17. https://youtube.com/shorts/vhRE4o9iSWs?is=4_826-LOBSPRQqcq
 18. https://youtube.com/shorts/PPTJPy5f4hw?is=stfz3Kn6bE-oFHZO
 19. https://youtube.com/shorts/Q6a9Jls6WEM?is=6MyS3VcFDWqksVaz
-20. 
+20. https://x.com/BattlefieldInte/status/2039343189698498638
+21. https://x.com/Battlefield6hub/status/2039606976141840835
+22. https://x.com/Raveeh7/status/2039009160965083395
+23. https://x.com/BattlefieldInte/status/2039363286135652357
 
 
 # Общее
