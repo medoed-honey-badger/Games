@@ -26,7 +26,8 @@
 25. https://www.youtube.com/shorts/s-ohqg2Er0M
 26. https://www.youtube.com/watch?v=c0N7NWRzx6U
 27. https://www.youtube.com/@kotovskin/videos
-28. 
+28. https://x.com/BattlefieldInte/status/2042236458082189427
+29. 
 
 
 # Общее
