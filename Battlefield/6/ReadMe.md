@@ -22,6 +22,11 @@
 21. https://x.com/Battlefield6hub/status/2039606976141840835
 22. https://x.com/Raveeh7/status/2039009160965083395
 23. https://x.com/BattlefieldInte/status/2039363286135652357
+24. https://www.youtube.com/watch?v=35sh9SUd3O0
+25. https://www.youtube.com/shorts/s-ohqg2Er0M
+26. https://www.youtube.com/watch?v=c0N7NWRzx6U
+27. https://www.youtube.com/@kotovskin/videos
+28. 
 
 
 # Общее
