@@ -9,6 +9,8 @@
 8. [The high quality gunplay of Arma Reforger | caracal](https://www.youtube.com/watch?v=1OLmRlCOjFw)
 9. [Arma's BEST Gamemode is BACK! — Arma Reforger Wasteland Mod | PsiSyn](https://www.youtube.com/watch?v=JAzfNmy4y2I)
 10. [I was COMPLETELY WRONG about the LAV-25 in ARMA REFORGER 1.3 | Sabre](https://www.youtube.com/watch?v=iLbBELox6TI)
+11. [You can be a civilian in Arma Reforger... and it's WAY TOO MUCH FUN!! 🤓 | Gamer Universe](https://www.youtube.com/watch?v=dORy5C7PpPQ)
+12. 
 
 # Советы
 1. [10 Great Tips in Arma Reforger | spartank](https://www.youtube.com/watch?v=iQcjXSUSlEk)
@@ -26,7 +28,11 @@
 8. [How to EFFECTIVELY use Anti-Tank mines in Arma Reforger! | Sabre](https://www.youtube.com/watch?v=8Xmts7yP70c)
 9. [ARMA Reforger - A Brief Overview of Supplies | Tha Sly Fox](https://www.youtube.com/watch?v=2eokMA_oRDA)
 10. [Every War Tactic Explained in 8 Minutes | The Paint Explainer](https://www.youtube.com/watch?v=uAev-EdK3I4)
-11. 
+11. [Arma Reforger Quick Tip - AP Mines | Arma Platform](https://www.youtube.com/watch?v=hwLxBDTpet8)
+12. [THIS will make YOU a DRIVING PRO in Arma Reforger 1.6! | Sabre](https://www.youtube.com/watch?v=yUx75wEKWGI)
+13. [Enfusion Photography - Arma Reforger Tools Tutorial | Arma Platform](https://www.youtube.com/watch?v=Ir2N-RKNcQw)
+14. [Make Arma Not War 2025 Podcast #6 - Learning Through Modding and Community | Arma Platform](https://www.youtube.com/watch?v=neaSPxZnOfU)
+15. [](url)
 
 # Тактика
 1. [How to effectively sabotage enemy bases and burn their supplies in Arma Reforger. #armareforger | Kenji](https://www.youtube.com/watch?v=quOPSYwYKHE)
