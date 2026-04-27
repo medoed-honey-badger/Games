@@ -27,7 +27,19 @@
 26. https://www.youtube.com/watch?v=c0N7NWRzx6U
 27. https://www.youtube.com/@kotovskin/videos
 28. https://x.com/BattlefieldInte/status/2042236458082189427
-29. 
+29. https://x.com/Battlefield6hub/status/2048675212921635180
+30. https://x.com/Dexerto/status/2047903428370960772
+31. https://x.com/Battlefield/status/2046241336450322926
+32. https://x.com/Battlefield/status/2045880461793091619
+33. https://www.youtube.com/watch?v=wLl-ReW2JQU
+34. https://www.youtube.com/watch?v=GbdQz3h24mk
+35. https://www.youtube.com/watch?v=1eMp6kFXCh8
+36. https://www.youtube.com/watch?v=CPzNMQocKHY
+37. https://www.youtube.com/watch?v=V6jQQM-QFqA
+38. https://www.youtube.com/watch?v=DXxZgcd3hrA
+39. https://www.youtube.com/watch?v=pajbEvth8qs
+40. https://www.youtube.com/watch?v=Jm-kHzOWRV0
+41. 
 
 
 # Общее
