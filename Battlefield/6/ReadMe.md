@@ -39,7 +39,8 @@
 38. https://www.youtube.com/watch?v=DXxZgcd3hrA
 39. https://www.youtube.com/watch?v=pajbEvth8qs
 40. https://www.youtube.com/watch?v=Jm-kHzOWRV0
-41. 
+41. https://www.youtube.com/watch?v=pNjCLQyMDUQ
+42. 
 
 
 # Общее
