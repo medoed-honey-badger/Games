@@ -39,6 +39,8 @@
 4. [How to Equip Weapons Faster in DayZ | Weapon Draw Speeds | WOBO](https://www.youtube.com/watch?v=NtyiZRBvb38)
 5. [Dodging Enemy Fire: How to best zig-zag in DayZ 1.20 | WOBO](https://www.youtube.com/watch?v=Ke1Y0eaO2jg)
 6. [10 PRO tips that will change how you play DayZ | WOBO](https://www.youtube.com/watch?v=Qer9L1R2Tvc)
+7. [DayZ Loot System Explained | Loot Groups, Nodes & Economy](https://www.youtube.com/watch?v=E_WfyFvF7ao)
+8. 
 
 # Фильмы
 1. [WAR! - DayZ (Movie) | JLK](https://www.youtube.com/watch?v=G3rXsSG5gFg)
