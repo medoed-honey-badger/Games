@@ -32,7 +32,8 @@
 12. [THIS will make YOU a DRIVING PRO in Arma Reforger 1.6! | Sabre](https://www.youtube.com/watch?v=yUx75wEKWGI)
 13. [Enfusion Photography - Arma Reforger Tools Tutorial | Arma Platform](https://www.youtube.com/watch?v=Ir2N-RKNcQw)
 14. [Make Arma Not War 2025 Podcast #6 - Learning Through Modding and Community | Arma Platform](https://www.youtube.com/watch?v=neaSPxZnOfU)
-15. [](url)
+15. [I Taught This Arma Dev Real Sniper Tactics! | King Alex and Arma Platform](https://www.youtube.com/watch?v=lmYtG7GXeII)
+16. 
 
 # Тактика
 1. [How to effectively sabotage enemy bases and burn their supplies in Arma Reforger. #armareforger | Kenji](https://www.youtube.com/watch?v=quOPSYwYKHE)
