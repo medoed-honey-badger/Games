@@ -16,7 +16,9 @@
 15. https://www.youtube.com/watch?v=6-1XZAL_w28
 16. https://www.youtube.com/watch?v=luu0kWadiNM
 17. https://www.youtube.com/watch?v=ZPu1CxBOZLM
-18. 
+18. [Battlefield 2. Farewell | IIIAVIII](https://www.youtube.com/watch?v=OvxyM490fpM)
+    - Про все моменты из батлы
+19. 
 
 # Приколы
 1. [BF2- Enemy Boat Spotted (Sparta Remix) | thriftyh4xx](https://www.youtube.com/watch?v=sGzmeihdTFA)
@@ -64,7 +66,8 @@
 8. [BattleField 2 F35 Flying High Spiral Effect | CrazySaVaunT](https://www.youtube.com/watch?v=tqcZ85CQzVM)
 9. [BattleField 2 Crazy Pilot First Person (No Hud) | CrazySaVaunT](https://www.youtube.com/watch?v=vMfL1s1-6Qs)
 10. [BattleField 2 Crazy Pilot | CrazySaVaunT](https://www.youtube.com/watch?v=wIFhSbxeYZU)
-11. [](url)
+11. [Farewell Battlefield 2 | End](https://www.youtube.com/watch?v=60mpoPephxo)
+12. [](url)
 
 ### Трюки
 1. [Battlefield 2 - Jet Stunts | NuKe](https://www.youtube.com/watch?v=5bDqsRYIWec)
