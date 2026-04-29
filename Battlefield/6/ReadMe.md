@@ -40,7 +40,8 @@
 39. https://www.youtube.com/watch?v=pajbEvth8qs
 40. https://www.youtube.com/watch?v=Jm-kHzOWRV0
 41. https://www.youtube.com/watch?v=pNjCLQyMDUQ
-42. 
+42. https://x.com/Battlefield/status/2048778073441476913
+43. 
 
 
 # Общее
