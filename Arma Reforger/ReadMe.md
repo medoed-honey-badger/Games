@@ -57,5 +57,6 @@
 # Вертолёты
 1. [Arma Reforger Custom HOTAS Bindings | Arma Platform](https://www.youtube.com/watch?v=C1_2qpGMVL4)
 2. [Вот это высший пилотаж](https://www.youtube.com/shorts/XYFkSMenswk)
-  - https://www.youtube.com/shorts/M9joRz9ZG8Q
-3. 
+   - https://www.youtube.com/shorts/M9joRz9ZG8Q
+3. https://www.youtube.com/shorts/GWityg8iCZA
+4. 
