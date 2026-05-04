@@ -43,7 +43,8 @@
 42. https://x.com/Battlefield/status/2048778073441476913
 43. https://x.com/Battlefield/status/2049504323030151193
 44. https://x.com/BF6Media/status/2049155859536658906
-45. 
+45. https://www.youtube.com/watch?v=qim8DS3SHR4
+46. 
 
 
 # Общее
