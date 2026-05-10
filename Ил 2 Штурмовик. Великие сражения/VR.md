@@ -38,4 +38,5 @@
 7. [Настраиваем Quest 3 и Virtual Desktop для полётов в VR. | Just Fly It](https://www.youtube.com/watch?v=tnESzVvxiRs)
    - на таком-то моменте такое
 8. [DCS + Quest3 + SteamVR невероятная производительность, которую не ожидал увидеть | Just Fly It](https://www.youtube.com/watch?v=uzObGJEVBSU)
-9. 
+9. [Quest 3 для авиасимуляторов: Полный гайд по настройке (IL-2, DCS, War Thunder) | Give 'em Hell](https://www.youtube.com/watch?v=QScL_sA-S4s)
+10. 
